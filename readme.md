@@ -38,7 +38,8 @@ Live & Session
 14:00 Live
 15:10 Jam Session
 
-- Sax. 阿久津安永
+- AS. 武藤行輝
+- TS. 阿久津安永
 - Gt. 山本陽一
 - B. 萩原拓也
 - Ds. 長澤洋平
