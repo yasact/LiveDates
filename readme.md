@@ -32,7 +32,7 @@ Live & Session
 
 ## 3/20(sat.)
 
-ペントレイペンタ
+ペントレイズ・ペンタ
 @稲毛 Coltrane
 
 14:00 Live
