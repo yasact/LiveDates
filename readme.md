@@ -35,8 +35,8 @@ Live & Session
 ペントレイペンタ
 @稲毛 Coltrane
 
-- 14:00 Live
-- 15:10 Jam Session
+14:00 Live
+15:10 Jam Session
 
 - Sax. 阿久津安永
 - Gt. 山本陽一
