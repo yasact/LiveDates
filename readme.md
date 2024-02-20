@@ -19,7 +19,7 @@ Live & Session
 - Ds. 稲見太紀
 - GuestVo. 宮原美絵
 
-## 3/10 (sat.)
+## 3/10 (sun.)
 
 群馬大学Jazz研
 定期Live&Session
@@ -30,7 +30,7 @@ Live & Session
 - 1st set:Live
 - 2nd set:Session
 
-## 3/20(sat.)
+## 3/20(wed.)
 
 ペントレイズ・ペンタ
 @稲毛 Coltrane
