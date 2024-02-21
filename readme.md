@@ -32,11 +32,18 @@ Live & Session
 
 ## 3/20(wed.)
 
+[Facebook event page](https://fb.me/e/9KziigUYZ)
+
 ペントレイズ・ペンタ
 @稲毛 Coltrane
 
-14:00 Live
-15:10 Jam Session
+- 13:30 - Open
+- 14:00 - 15:00 Live
+- 15:10 - 19:00 Jam Session
+- charge ¥2,000 + order
+- (学割 ¥2,000 → ¥1000!)
+
+### member
 
 - AS. 武藤行輝
 - TS. 阿久津安永
