@@ -11,6 +11,7 @@ Live & Session
 
 19:00 open
 19:30 start
+M.C \2,000（学生\1,000）
 
 - G.&Vo. 細井徳太郎
 - Sax. 阿久津安永
