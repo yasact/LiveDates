@@ -23,7 +23,9 @@ YasAct, tenor saxophone
 #### Place
 **稲毛 Coltrane**  
 千葉県千葉市稲毛区稲毛東3-19-15  
-（JR稲毛駅徒歩２分）
+（JR稲毛駅徒歩２分）  
+https://www.ne.jp/asahi/chiba/salsa/coltrane.html  
+https://maps.app.goo.gl/uEL3M6nLAimkuiCn6
 
 ## 10/9(Wed.)
 ### カナダ・日本国際美術展　～Print junction～カナダ・日本現代版画の多様性・オープニングイベント
