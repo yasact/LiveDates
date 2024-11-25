@@ -1,43 +1,36 @@
 # YasAct's Live Schedule
 
-## 9/29 (sun.)
+## 12/14 (Sat.)
 
-### ジャムセッション @ 稲毛Coltrane
+Live at es cafe
+14:00 start
+M.C. 2,500 yen
 
-12:30 - Open   
-13:00 - 17:00 Jam session
+Sax:阿久津安永
+Sax：小林里枝
+Bass:細野慎平
+Drums:稲見太紀
 
-charge ¥1,500 + order  
-(学割 ¥1,500 → ¥500)
+es cafe
+前橋市東金丸町33-13
+TEL 027-283-6543
+http://escafes.blog52.fc2.com/
+https://maps.app.goo.gl/6sS2VHGN7PW2DWQEA
 
-#### Hosted by:
-古屋 和奏, trombone  
-南川 航太朗, piano  
-萩原 拓也, bass  
-長澤 洋平, drums  
+## 2025/1/19(Sun.)
 
-#### As guest for playing with hosts:
-原 晃志郎, trumpet  
-YasAct, tenor saxophone  
+LIVE & JAM SESSION at Coltrane,Inage
 
-#### Place
-**稲毛 Coltrane**  
-千葉県千葉市稲毛区稲毛東3-19-15  
-（JR稲毛駅徒歩２分）  
-https://www.ne.jp/asahi/chiba/salsa/coltrane.html  
-https://maps.app.goo.gl/uEL3M6nLAimkuiCn6
+Open, 12:30 -
+Live, 13:00 - 14:00
+Jam session, 14:00 - 17:00
 
-## 10/9(Wed.)
-### カナダ・日本国際美術展　～Print junction～カナダ・日本現代版画の多様性・オープニングイベント
+原晃志郎:trumpet
+YasAct:tenor saxophone
+古屋和奏:trombone
+南川航太朗:piano
+萩原拓也:bass
+長澤洋平:drums
 
-## 10/20(Sun.)
-
-### アートビエンナーレ2024　第15回桐生市有鄰館芸術祭
-
-## 11/10(Sun.)
-
-### つくばコーヒーフェスティバル2024
-
-
-
-
+Music charge: 1500 yen (500 yen
+for student)
